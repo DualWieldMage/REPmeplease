@@ -1,1 +1,1 @@
-Get chill babe. It's just a lil test.
+Chill babe. It's just a lil test.
